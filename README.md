@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @manaal-rehman
+- 👀 I’m interested in Artificial Intelligence, Machine Learning and Community Building!!
+- 🌱 I’m currently student of Computer Engineering at COMSATS University Islamab
+- 📫 You may reach me at mrehman.2k@gmail.com
